@@ -1,1 +1,1 @@
-I will  be a developer soon
+I can do hard things.
